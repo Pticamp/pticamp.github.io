@@ -1,1 +1,1 @@
-# pticamp.github.io
+# www.ptak.org.pl
